@@ -1,0 +1,1 @@
+Hello - değiştirildi revize edildi.
